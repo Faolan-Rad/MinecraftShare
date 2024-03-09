@@ -1,4 +1,4 @@
-Greetings, fellow word enthusiasts!
+Greetings, fellow word enthusiasts!!!
 
 Welcome to this hallowed space, where we gather to witness the majestic tapestry of words spun from the looms of placeholder artistry. Like the legendary weavers of old, we present you with a grand display of nonsensical yet aspirational prose, a veritable feast for the eyes that will surely tickle your funny bone.
 
